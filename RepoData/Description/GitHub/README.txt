@@ -1,1 +1,1 @@
- The new approach to Git repo templates, an ultimate template culminated in less than 2 weeks that combines all template categories into one. A very powerful Git template. 
+🇸●🇳●🇺●🔞️💾️ The official source repositories for the Ethnicities section of the SNU 2D Porn module. This module is not for those under the age of 18, and may be restricted, based on laws regarding sexuality per country.
